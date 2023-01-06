@@ -7,7 +7,7 @@ Play
 Pokémon
 Go
 Every
-DAY
+morning
 
 I PLAY POKÉMON GO
 
