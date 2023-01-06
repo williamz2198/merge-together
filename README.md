@@ -1,3 +1,12 @@
 # merge-together
 
-I dont want to do this 
+I don't want to do this
+I
+Play
+Pokémon
+Go
+Every
+DAY
+
+I PLAY POKÉMON GO
+
